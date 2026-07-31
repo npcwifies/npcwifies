@@ -19,6 +19,8 @@
 
 .  ☯  ;  always open to making new friends tbh . i AM SO LONELY ON PT.... WAHH
 
+.  ☯  ;  do NOT copy or take ANY inspo from ANY. of my skins... ok? ok.
+
   ────୨ৎ────────────  
 
  $\text{\color{#47428C} .✦ ݁˖ .  hey egg .. why is the sea glowing ?.. 　
