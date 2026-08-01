@@ -15,7 +15,7 @@
 
   .  ☯  ;  **please read my strawpage ,** ; it gives a lot more info than here LOL
   
-.  ☯  ;  i am a wifies & spoke permashift  .  doubles dni 
+.  ☯  ;  i am a wifies & spoke permashift  .  doubles dni ( I WILL MAKE EXCEPTIONS JUST LIKE TALK TO ME OK )
 
 .  ☯  ;  always open to making new friends tbh . i AM SO LONELY ON PT.... WAHH
 
