@@ -1,6 +1,6 @@
 <div align="center">
 
-<sub>.  all art by HHyden_n on twt/x !</sub>
+<sub>.  pfp by RN_butAlt on TWT ,, and image below by yuviarien on TWT !<sub>
   
 
 <img width="735" height="492" alt="image" src="https://github.com/user-attachments/assets/19611cb4-0045-4936-8772-0f4d92d08b0a" />
