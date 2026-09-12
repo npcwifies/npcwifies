@@ -1,24 +1,22 @@
 <div align="center">
 
-<sub>.  pfp by RN_butAlt on TWT ,, and image below by yuviarien on TWT !<sub>
+<sub>.  pfp and banner by kits_vx on twt/X !<sub>
   
 
-<img width="735" height="492" alt="image" src="https://github.com/user-attachments/assets/19611cb4-0045-4936-8772-0f4d92d08b0a" />
+<img width="2500" height="1000" alt="spoek2" src="https://github.com/user-attachments/assets/7cd4d385-92b3-46a6-9f31-7761933fe6c9" />
 
 
-
-
-  $\text{\color{#FFCCAC} .✦ ݁˖ .  We shouldn't hold past grievances we should forgive and forget.
+  $\text{\color{#701c29} .✦ ݁˖ .  I am your greatest creation.
   }$
 
 
   ────୨ৎ────────────  
 
-  .  🌻  ;  **please read my strawpage ,** ; it gives a lot more info than here LOL
+  .  🌈  ;  **please read my strawpage ,** ; it gives a lot more info than here LOL
   
-.  ☯  ;  i am a wifies & spoke permashift  .  doubles dni ( I WILL MAKE EXCEPTIONS JUST LIKE TALK TO ME OK )
+.  ☯  ;  i am a wifies & spoke permashift  .  doubles dni 
 
-.  🌻  ;  always open to making new friends tbh . i AM SO LONELY ON PT.... WAHH
+.  🌈  ;  always open to making new friends tbh . i AM SO LONELY ON PT.... WAHH
 
 .  ☯  ;  do NOT copy or take ANY inspo from ANY. of my skins... ok? ok.
 
